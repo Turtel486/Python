@@ -12,4 +12,4 @@ Nebuď rasista (potom co řekl 6x negr)
 
     
 <img width="1080" height="720" alt="image" src="https://github.com/user-attachments/assets/5096cbba-418f-4ee3-9be5-8afeead0ecae" />
-Domeček na sáňkách
+Domeček na sáňkách (jdou sem vkládat obrázky LETS GOO)
