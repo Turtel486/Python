@@ -15,6 +15,11 @@ Nebuď rasista (potom co řekl 6x negr)
 Domeček na sáňkách (jdou sem vkládat obrázky LETS GOO)
 
 
+<img width="1624" height="730" alt="image" src="https://github.com/user-attachments/assets/373460ed-630c-422f-a201-d33e99856105" />
+(nepamatuju si to)
+
+
+Honorable Mention shitposty:
 https://github.com/user-attachments/assets/4fda8169-c0d8-4f65-aaf9-dc6b2aa5c8cf
 
 <img width="640" height="377" alt="image" src="https://github.com/user-attachments/assets/a71f2e77-d8b8-4505-a936-cb30b23e07aa" />
