@@ -5,3 +5,4 @@ nudím se -17.9.2025
 
 Nebuď rasista (potom co řekl 6x negr)
       - Alex 2025
+<img width="1080" height="720" alt="image" src="https://github.com/user-attachments/assets/5096cbba-418f-4ee3-9be5-8afeead0ecae" />
